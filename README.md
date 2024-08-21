@@ -1,1 +1,0 @@
-# Privacy-Policy-Fingerprint---Fortune-Telling
